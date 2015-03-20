@@ -1,3 +1,3 @@
 # mytestrepo
 test for coder dojo
-CODE Dojo is awesome
+Mwhahahahaha! Hello! Blahdeblah. TESTING. Hacking.... Hack acquired!
